@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with scalping bot for derivatives quantitative Algorithm | order-book-analysis & isolated-margin, the #1 scalping bot for derivatives. Includes
 
 
 
